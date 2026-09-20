@@ -1,0 +1,16 @@
+
+- O grupo lutou contra cultistas.
+- Impediu o ritual, mas não conseguiu recuperar o sangue real.
+- Próximo passo: retornar a Forte Haven.
+- Objetivo: falar com William Tilambucano.
+- Novos companheiros conhecidos:
+    - Capitão Sauno Rabo.
+    - Clériga Lady Rita.
+- Lady Rita serve ao Pastor de Fogo.
+- O Pastor de Fogo quer chegar ao Castelo Crasthelm, ao norte de Hamwick.
+- Segundo o Pastor de Fogo, o castelo aparenta ser a fonte de um "câncer".
+- O Pastor de Fogo procura uma chave para entrar no castelo.
+- Dívida: 365 po para WT (William Tilambucano).
+- Ray Thor foi visto pela última vez em Vermice.
+- Há boatos de que ele está envolvido com a Bruxa do Pântano de Morglow.
+- Segundo WT, Barão Odrick está se comportando de modo estranho.
